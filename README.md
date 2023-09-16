@@ -12,4 +12,6 @@ my linkedin favorite posts for iran revolution 2017-2023
         </div>
 ```
 
-<blockquote class="twitter-tweet"><p lang="fa" dir="rtl">ایران رو پس می‌گیرید!<br><br>💚<br>🤍<br>❤️ <a href="https://t.co/TW77EnQyJU">pic.twitter.com/TW77EnQyJU</a></p>&mdash; Reza Pahlavi (@PahlaviReza) <a href="https://twitter.com/PahlaviReza/status/1592723093759594496?ref_src=twsrc%5Etfw">November 16, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
+||
+|:---:|
+|<blockquote class="twitter-tweet"><p lang="fa" dir="rtl">ایران رو پس می‌گیرید!<br><br>💚<br>🤍<br>❤️ <a href="https://t.co/TW77EnQyJU">pic.twitter.com/TW77EnQyJU</a></p>&mdash; Reza Pahlavi (@PahlaviReza) <a href="https://twitter.com/PahlaviReza/status/1592723093759594496?ref_src=twsrc%5Etfw">November 16, 2022</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> |
